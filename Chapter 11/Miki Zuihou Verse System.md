@@ -1,27 +1,29 @@
 ## 01 爾時仏前。有七宝塔。高五百由旬。縦広二百五十由旬。従地涌出。住在空中。種種宝物。而荘校之。五千欄楯。龕室千万。無数幢旛。以為厳飾。垂宝瓔珞。宝鈴万億。而縣其上。
-## 02 四面皆出多摩羅跋栴檀之香。充遍世界。其諸旛蓋。以金。銀。瑠璃。??。碼碯。真珠。?瑰。七宝合成。高至四天王宮。
-## 03 三十三天。雨天曼陀羅華。供養宝塔。余諸天。龍。夜叉。乾闥婆。阿脩羅。迦楼羅。緊那羅。摩?羅伽。人非人等。千万億衆。以一切華香瓔珞。旛蓋伎楽。供養宝塔。恭敬尊重讃歎。
+At that time, in front of the Buddha there arose a seven jeweled pagoda, five hundred yojanas high and two hundred fifty yojanas wide. It sprung up from the ground and dwelt in the sky. All sorts of precious materials adorned it. Five thousand balustrades and parapets, ten thousand niches and chambers, countless banners, for its strict decoration. Hanging jeweled pendants and billons of precious bells, thus adorning it.
+## 02 四面皆出多摩羅跋栴檀之香。充遍世界。其諸旛蓋。以金。銀。瑠璃。硨磲。碼碯。真珠。玫瑰。七宝合成。高至四天王宮。
+Fragrance of sandalwood issued from all four sides, pervading the world. The banners and canopies were made of gold, silver, lapis lazuli, coral, crystals, pearls, carnelian and the seven precious substances combined, reaching to the palace of the Four Heavenly Kings.
+
+## 03 三十三天。雨天曼陀羅華。供養宝塔。余諸天。龍。夜叉。乾闥婆。阿脩羅。迦楼羅。緊那羅。摩侯羅伽。人非人等。千万億衆。以一切華香瓔珞。旛蓋伎楽。供養宝塔。恭敬尊重讃歎。
+The thirty-three heavens rained mandarava flowers to make offerings to the jewel pagoda. The remaining deities, dragons, yakshas, gandharvas, asuras, garudas, kinaras, maras and non-human beings, numberless multitudes of thousands of koṭis, with all kinds of flowers, incense, jeweled pendants, banners, canopies and music, made offerings to the jewel pagoda with reverence, respect and praise.
 ## 04 爾時宝塔中。出大音声。歎言。善哉善哉。釈迦牟尼世尊。能以平等大慧。教菩薩法。仏所護念。妙法華経。為大衆説。如是如是。釈迦牟尼世尊。如所説者。皆是真実。
+Then from within the jewel pagoda came a great sound, sighing: "Well said, well said! The Buddha Shakyamuni World-Honored One, with equal and great wisdom teaches the Bodhisattva Dharma, the Sutra of the Lotus of the Wonderful Dharma for the multitude, protected and remembered by the Buddhas. Truly, truly! Whatever the Buddha Shakyamuni World-Honored One has spoken is all real."
 ## 05 爾時四衆。見大宝塔。住在空中。又聞塔中。所出音声。皆得法喜。怪未曾有。従座而起。恭敬合掌。却住一面。
+Then the four groups, seeing the great jewel pagoda dwelling in the air and also hearing the sound issuing from within the pagoda, all gained joy in the Dharma, wondering at what had never been, arose from their seats, reverently joining their palms together, then took their places on one side.
 ## 06 爾時有菩薩摩訶薩。名大楽説。知一切世間。天人阿脩羅等。心之所疑。而白仏言世尊。以何因縁。有此宝塔。従地涌出。又於其中。発是音声。
+At that time a bodhisattva mahāsāttva named Great Joy spoke, knowing all doubts in the minds of devas, humans, asuras etc, and said to the Buddha, "O World-honoured One, for what reasons has this jewel stūpa arisen from the earth, and for what reasons do sounds emanate from within it?"
 ## 07 爾時仏告。大楽説菩薩。此宝塔中。有如来全身。乃往過去。東方無量千万億。阿僧祇世界。国名宝浄。彼中有仏。号曰多宝。
+There now, the Buddha informed that great Mahāsāttva named Great Joy, "Within this jewel stūpa there lies the complete body of a Tathāgata from the past, from an eastern direction, countless thousands of millions of aeons away, in a world called Jewel Purity, within a country named Many Jewels. The Buddha there was called Great Jewels.
 ## 08 其仏本行菩薩道時。作大誓願。若我成仏。滅度之後。於十方国土。有説法華経処。我之塔廟。為聴是経故。涌現其前。為作証明。讃言善哉。
-彼仏成道已。臨滅度時。於天人大衆中。告諸比丘。我滅度後。欲供養我全身者。応起一大塔。其仏以神通願力。十方世界。在在処処。若有説法華経者。彼之宝塔。皆涌出其前。全身在於塔中。讃言善哉善哉。大楽説。今多宝如来塔。聞説法華経故。従地涌出。讃言善哉善哉。是時大楽説菩薩。以如来神力故。白仏言。
-世尊。我等願欲。見此仏身。仏告大楽説菩薩
-摩訶薩。是多宝仏。有深重願。若我宝塔。為聴
-法華経故。出於諸仏前時。其有欲以我身。示
-四衆者。彼仏分身諸仏。在於十方世界説法。
-尽還集一処。然後我身。乃出現耳。大楽説。我
-分身諸仏。在於十方世界説法者。今応当集。
-大楽説白仏言。世尊。我等亦願。欲見世尊。分
-身諸仏。礼拜供養。爾時仏放白毫一光。即見
-東方。五百万億。那由佗。恒河沙等。国土諸仏。
-彼諸国土。皆以頗梨為地。宝樹宝衣。以為荘
-厳。無数千万億菩薩。充満其中。遍張宝幔。宝
-網羅上。彼国諸仏。以大妙音。而説諸法。及見
-無量千万億菩薩。遍満諸国。為衆説法。南西
-北方。四維上下。白毫相光。所照之処。亦復如
-是
+When that Buddha was a bodhisattva practising the bodhisattva path, he made a great vow, 'If I become a Buddha, after I pass into nirvana, wherever in the ten directions there are places teaching the Lotus Sutra, there my stupa temples shall arise before them, to bear witness as they listen to that sutra and utter "well done, well done".''
+## 09 彼仏成道已。臨滅度時。於天人大衆中。告諸比丘。我滅度後。欲供養我全身者。応起一大塔。
+After that Buddha attained Buddhahood and approached his final nirvana, amongst the assembly of devas and humans he told his monks, 'After I pass away, those who wish to make offerings to my complete body should build a great stupa.'
+## 10 其仏以神通願力。十方世界。在在処処。若有説法華経者。彼之宝塔。皆涌出其前。全身在於塔中。讃言善哉善哉。大楽説。今多宝如来塔。聞説法華経故。従地涌出。讃言善哉善哉。
+By the spiritual power and vows of that Buddha, in all the worlds in every place where the Lotus Sutra is taught, the jewel stupas there arise before them, with his complete body within the stupa, uttering 'Well done, well done'. Great Joy, it is because the Lotus Sutra is being taught now that the stupa of Great Jewels' Buddha has arisen from the earth, uttering 'Well done, well done'.
+## 11 是時大楽説菩薩。以如来神力故。白仏言。世尊。我等願欲。見此仏身。
+## 12 仏告大楽説菩薩摩訶薩。是多宝仏。有深重願。若我宝塔。為聴法華経故。出於諸仏前時。其有欲以我身。示四衆者。彼仏分身諸仏。在於十方世界説法。尽還集一処。然後我身。乃出現耳。大楽説。我分身諸仏。在於十方世界説法者。今応当集。
+## 13 大楽説白仏言。世尊。我等亦願。欲見世尊。分身諸仏。礼拜供養。
+## 14 爾時仏放白毫一光。即見東方。五百万億。那由佗。恒河沙等。国土諸仏。彼諸国土。皆以頗梨為地。宝樹宝衣。以為荘厳。無数千万億菩薩。充満其中。遍張宝幔。宝網羅上。
+## 15 彼国諸仏。以大妙音。而説諸法。及見無量千万億菩薩。遍満諸国。為衆説法。南西北方。四維上下。白毫相光。所照之処。亦復如是
 爾時十方諸仏。各告衆菩薩言。善男子。我今
 応往娑婆世界。釈迦牟尼仏所。并供養多宝
 如来宝塔。時娑婆世界。即変清浄。瑠璃為地。

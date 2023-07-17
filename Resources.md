@@ -1,0 +1,3 @@
+- [The Lotus Sutra - Translated By H. Kern (buddhism.org)](http://www.buddhism.org/Sutras/2/Lotus_Sutra.htm)
+- [【妙法蓮華經】見寶塔品第十一（原文+白話）｜方格子 vocus](https://vocus.cc/article/63134934fd897800019b6a4c)
+- 
