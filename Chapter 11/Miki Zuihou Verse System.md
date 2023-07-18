@@ -20,12 +20,19 @@ After that Buddha attained Buddhahood and approached his final nirvana, amongst 
 ## 10 其仏以神通願力。十方世界。在在処処。若有説法華経者。彼之宝塔。皆涌出其前。全身在於塔中。讃言善哉善哉。大楽説。今多宝如来塔。聞説法華経故。従地涌出。讃言善哉善哉。
 By the spiritual power and vows of that Buddha, in all the worlds in every place where the Lotus Sutra is taught, the jewel stupas there arise before them, with his complete body within the stupa, uttering 'Well done, well done'. Great Joy, it is because the Lotus Sutra is being taught now that the stupa of Great Jewels' Buddha has arisen from the earth, uttering 'Well done, well done'.
 ## 11 是時大楽説菩薩。以如来神力故。白仏言。世尊。我等願欲。見此仏身。
+Great Joy then, by the spiritual powers of the Tathagata, respectfully said to the Buddha, "O World Honored One, we wish to behold this Buddha body."
 ## 12 仏告大楽説菩薩摩訶薩。是多宝仏。有深重願。若我宝塔。為聴法華経故。出於諸仏前時。其有欲以我身。示四衆者。彼仏分身諸仏。在於十方世界説法。尽還集一処。然後我身。乃出現耳。大楽説。我分身諸仏。在於十方世界説法者。今応当集。
+The Buddha told that great bodhisattva mahāsāttva Great Joy, "This Great Jewels Buddha has a profound vow. When my jewel stūpa appears before Buddhas to bear witness to the Lotus Sutra, if there is a wish to reveal my body to the fourfold assembly, then all the many Buddha emanations teaching the Dharma in worlds in the ten directions must first gather in one place. Only then will my body appear." Great Joy responded, "The many Buddha emanations teaching the Dharma in the worlds in ten directions should now come together."
 ## 13 大楽説白仏言。世尊。我等亦願。欲見世尊。分身諸仏。礼拜供養。
+Great Joy respectfully said to the Buddha, "O World Honored One, we too wish to behold all the many emanated Buddha bodies so that we may pay reverence and make offerings."
 ## 14 爾時仏放白毫一光。即見東方。五百万億。那由佗。恒河沙等。国土諸仏。彼諸国土。皆以頗梨為地。宝樹宝衣。以為荘厳。無数千万億菩薩。充満其中。遍張宝幔。宝網羅上。
-## 15 彼国諸仏。以大妙音。而説諸法。及見無量千万億菩薩。遍満諸国。為衆説法。南西北方。四維上下。白毫相光。所照之処。亦復如是
+Thereupon, the Buddha emitted a single beam of white light rays, and immediately they beheld to the east, Buddhas in five hundred million world-systems as numerous as grains of sand of the Ganges, with worlds made of lapis lazuli. Those worlds were adorned with jeweled trees and robes, filled with numberless bodhisattvas spreading jewel canopies and nets overhead.
+## 15 彼国諸仏。以大妙音。而説諸法。及見無量千万億菩薩。遍満諸国。為衆説法。南西北方。四維上下。白毫相光。所照之処。亦復如是。
+In those lands, the Buddhas taught the Dharma with wondrous melodious voices, while countless bodhisattvas filled those lands teaching the multitudes. To the south, west, north and above and below as well, where the rays of light shone, it was also so, with Buddhas, bodhisattvas and worlds filled with bliss.
 ## 16 爾時十方諸仏。各告衆菩薩言。善男子。我今応往娑婆世界。釈迦牟尼仏所。并供養多宝如来宝塔。
+Thereupon, all Buddhas in the ten directions instructed the bodhisattvas,"Good sirs, we shall now go together to the Sahā world to pay reverence to Śākyamuni Buddha and make offerings to the jewel stūpa of Great Jewels Tathāgata."
 ## 17 時娑婆世界。即変清浄。瑠璃為地。宝樹荘厳。黄金為縄。以界八道。無諸聚落。村営城邑。大海江河。山川林薮。焼大宝香。曼陀羅華。遍布其地。以宝網幔。羅覆其上。縣諸宝鈴。唯留此会衆。移諸天人。置於佗土。
+Then instantaneously, the Sahā world became pure and transformed, with lapis lazuli ground, adorned with jewel trees, golden ropes demarcating the eight paths, with no more villages, towns or cities, oceans, rivers mountains or forests, as great incense and mandārava flowers covered the land, and jewel nets and canopies covered overhead, while jewel bells sounded, leaving only this assembly, transferring all other devas and humans to Tuṣita Heaven, placed upon jewel ground.
 ## 18 是時諸仏。各将一大菩薩。以為侍者。至娑婆世界。各到宝樹下。一一宝樹。高五百由旬。枝葉華果。次第荘厳。諸宝樹下。皆有師子之座。高五由旬。亦以大宝。而校飾之。爾時諸仏。各於此座。結跏趺坐。如是展転。遍満三千大千世界。而於釈迦牟尼仏。一方所分之身。猶故未尽。
 ## 19 時釈迦牟尼仏。欲容受所分身諸仏故。八方各更変。二百万億。那由佗国。皆令清浄。無有地獄。餓鬼畜生。及阿脩羅。又移諸天人。置於佗土。
 ## 20 所化之国。亦以瑠璃為地。宝樹荘厳。樹高五百由旬。枝葉華果。次第厳飾。樹下皆有宝師子座。高五由旬。種種諸宝。以為荘校。亦無大海江河。及目真隣陀山。摩訶目真隣陀山。鉄囲山。大鉄囲山。須弥山等諸山王。通為一仏国土。宝地平正。宝交露幔。遍覆其上。縣諸旛蓋。焼大宝香。諸天宝華。遍布其地。
@@ -71,5 +78,9 @@ By the spiritual power and vows of that Buddha, in all the worlds in every place
 ## 55 於我滅後 若能奉持  如斯経典 是則為難 
 ## 56 我為仏道 於無量土 従始至今 広説諸経 而於其中 此経第一 若有能持 則持仏身 
 ## 57 諸善男子 於我滅後 誰能受持 読誦此経 今於仏前 自説誓言
+You good sons, after I am gone, who will uphold and recite this sūtra?  
+Now, in the presence of the Buddha, declare your vows yourselves.
 ## 58 此経難持 若暫持者 我即歓喜 諸仏亦然 如是之人 諸仏所歎 是則勇猛 是則精進 是名持戒 行頭陀者 則為疾得 無上仏道
+This sutra is difficult to hold, yet if one can hold it even temporarily, I will rejoice, as will all Buddhas. Such people, objects of praise by all Buddhas, are courageous and energetic; they keep precepts and practice austerities, and thus swiftly attain the incomparable Buddha Way.
 ## 59 能於来世 読持此経 是真仏子 住淳善地 仏滅度 後 能解其義 是諸天人 世間之眼  於恐畏世 能須臾説 一切天人 皆応供養
+Those who can read and recite this sutra in future lives are the true children of the Buddha, abiding on pure virtuous ground. After the Buddha enters final nirvana, they'll grasp the meaning, becoming eyes of the world for devas and humans. In this fearful world, they'll be able to expound it in an instant. All devas and humans should make offerings to them indeed.
